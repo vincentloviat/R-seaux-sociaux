@@ -85,7 +85,34 @@ En échange du don de produits pour le coffret, Pachamamaï peut offrir :
 
 ---
 
-## 5. Template de prise de contact
+## 5. Liste des emails de contact
+
+| # | Marque | Email | Interlocuteur / Notes | Priorité |
+|---|---|---|---|---|
+| 1 | **Lamazuna** | bonjour@lamazuna.com | Email général — préciser "partenariat" en objet | 🔴 Haute |
+| 2 | **Apimani** | axelle@apimani.fr | Axelle — Responsable Développement Commercial Ouest | 🔴 Haute |
+| 3 | **Caliquo** | contact@caliquo.com | Email général — Paris 14e | 🔴 Haute |
+| 4 | **Nailmatic** | contact@nailmatic.com | Email général — volume élevé, relancer après 1 semaine si silence | 🔴 Haute |
+| 5 | **Le Moly** | contact@lemoly.fr | Atelier artisanal à Pau — approche directe appréciée | 🔴 Haute |
+| 6 | **Oopla** | sav@oopla.fr | Lun–Ven 9h–18h — entreprise à mission ESS | 🟡 Moyenne |
+| 7 | **Bbamboo** | support@bbamboo.fr | Jeune marque, Auvergne / Marseille — ouverts aux collab | 🟡 Moyenne |
+| 8 | **Aime Skincare** | contact via aime.co/fr/contact | Fondatrice : Mathilde Lacombe — forte communauté Instagram | 🟡 Moyenne |
+
+> **Conseil :** pour Apimani, contacter aussi Marie (Est) : marie@apimani.fr si votre zone est l'Est de la France.
+
+---
+
+## 6. Ordre de contact recommandé
+
+1. **Lamazuna** — partenaire idéal, même ADN, ouverte aux collaborations
+2. **Le Moly** — petite structure, réactivité forte, accessoire parfait (porte-savon)
+3. **Caliquo** — brosse à dents rechargeable = produit viral et différenciant
+4. **Apimani** — structure pro avec interlocuteur dédié (Axelle)
+5. **Nailmatic** — plus grande marque, délai de réponse potentiellement plus long
+
+---
+
+## 7. Template de prise de contact
 
 > **Objet :** Collaboration coffret zéro déchet — Pachamamaï x [Marque]
 >
