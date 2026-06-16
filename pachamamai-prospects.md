@@ -133,4 +133,80 @@ En échange du don de produits pour le coffret, Pachamamaï peut offrir :
 
 ---
 
+## 8. Emails rédigés — Apimani & Caliquo
+
+---
+
+### ✉️ Email Apimani
+**À :** axelle@apimani.fr
+**Objet :** Collaboration jeu concours Instagram — Pachamamaï x Apimani
+
+---
+
+Bonjour Axelle,
+
+Je me permets de vous contacter au nom de **Pachamamaï**, première marque française de cosmétiques solides labellisée Cruelty Free & Vegan par PETA.
+
+Nous lançons prochainement une opération de **jeu concours Instagram** autour d'un **coffret zéro déchet** sélectionnant des marques partageant nos valeurs : made in France, respect de l'environnement, produits naturels et durables.
+
+En parcourant votre gamme, nous avons immédiatement pensé à vos **brosses à dents écologiques** — un accessoire qui s'intègre parfaitement à notre univers et qui apporterait une vraie valeur ajoutée au coffret.
+
+Dans ce cadre, nous souhaiterions savoir si vous seriez disposés à **nous offrir quelques unités** de vos brosses à dents pour constituer ces coffrets. En contrepartie, nous vous proposons une visibilité concrète sur notre communauté :
+
+- 📧 **Newsletter** : mention + lien vers Apimani dans notre email dédié à l'opération
+- 📱 **Instagram** : post + story avec tag @apimani pendant la durée du jeu concours
+- 🌐 **Landing page** : présentation de votre marque et de vos produits sur la page dédiée au coffret
+- 🤝 **Co-branding** : visuels partagés sur nos réseaux respectifs
+
+C'est une belle occasion de toucher une audience engagée, sensible au zéro déchet et à la cosmétique naturelle — un profil qui correspond parfaitement à votre clientèle cible.
+
+Seriez-vous ouverts à échanger sur les modalités de cette collaboration ?
+
+Je reste à votre disposition pour toute question.
+
+Bien cordialement,
+[Prénom Nom]
+Équipe Pachamamaï
+[Téléphone]
+[Email]
+
+---
+
+### ✉️ Email Caliquo
+**À :** contact@caliquo.com
+**Objet :** Collaboration jeu concours Instagram — Pachamamaï x Caliquo
+
+---
+
+Bonjour,
+
+Je me permets de vous contacter au nom de **Pachamamaï**, première marque française de cosmétiques solides labellisée Cruelty Free & Vegan par PETA.
+
+Nous préparons une opération de **jeu concours Instagram** autour d'un **coffret zéro déchet**, réunissant des marques françaises engagées qui partagent nos valeurs : fabrication responsable, respect de l'environnement, innovation durable.
+
+Votre **brosse à dents rechargeable Caliquo** nous a immédiatement séduits — c'est exactement le type de produit innovant, made in France et éco-conçu que nous souhaitons mettre en avant auprès de notre communauté.
+
+Nous souhaiterions vous proposer une collaboration : **un don de quelques brosses à dents** pour intégrer nos coffrets, en échange d'une visibilité ciblée sur nos canaux :
+
+- 📧 **Newsletter** : mention et lien vers Caliquo dans notre communication dédiée
+- 📱 **Instagram** : post + story avec tag @caliquo pendant le jeu concours
+- 🌐 **Landing page** : fiche de présentation de Caliquo sur la page du coffret
+- 🤝 **Partage croisé** : visuels co-brandés sur les deux comptes
+
+Notre communauté est composée de consommateurs engagés, à la recherche d'alternatives concrètes et durables — un public naturellement sensible à votre démarche.
+
+Cette opération représente une belle opportunité de faire découvrir Caliquo à une audience qualifiée, sans frais publicitaires.
+
+Seriez-vous intéressés pour en discuter ?
+
+Dans l'attente de votre retour, je reste disponible pour tout échange.
+
+Bien cordialement,
+[Prénom Nom]
+Équipe Pachamamaï
+[Téléphone]
+[Email]
+
+---
+
 *Document créé le 16 juin 2026 — à compléter au fil des retours.*
