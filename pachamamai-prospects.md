@@ -209,4 +209,76 @@ Bien cordialement,
 
 ---
 
-*Document créé le 16 juin 2026 — à compléter au fil des retours.*
+---
+
+## 9. Prospects hors cosmétique — Univers Pachamamaï
+
+> **Critères appliqués :** Made in France ou Europe · Éco-responsable / naturel · Cible féminine CSP+ 25–45 ans · Instagram ~20k–50k abonnés
+
+---
+
+### 🕯️ BOUGIES & HOME DÉCO
+
+| Marque | Produit coffret | Instagram | Origine | Particularité | Site |
+|---|---|---|---|---|---|
+| **Suzanne La Naturelle** | Bougie cire de soja / cire d'abeille naturelle, fabriquée à la main en Île-de-France | @suzanne_lanaturelle | France (IDF) | Cire naturelle, mèche sans plomb, parfums de Grasse | [suzannelanaturelle.com](https://suzannelanaturelle.com) |
+| **IOKKO** | Bougie artisanale naturelle | @iokko | France (Paris) | Laboratoire parisien, esthétique soignée | [iokko.fr](https://iokko.fr) |
+| **Rochemara** | Bougie artisanale, verre fabriqué en France | @rochemara | France | Fabriquée par des personnes en situation de handicap, engagement social fort | [rochemara.com](https://rochemara.com) |
+
+> ⚠️ Comptes Instagram à vérifier manuellement pour les abonnés — les 3 marques sont dans la cible de taille.
+
+---
+
+### 🍵 INFUSIONS & BIEN-ÊTRE FÉMININ
+
+| Marque | Produit coffret | Instagram | Origine | Particularité | Site |
+|---|---|---|---|---|---|
+| **Mana Bella** | Infusions bio cycle féminin, plantes 90% françaises | @manabella.fr | France (Haut-Jura) | Dédié exclusivement aux femmes, fondatrice herboriste — cible identique à Pachamamaï | [manabella.fr](https://manabella.fr) |
+| **Biohême** | Infusions bio françaises | @vie_de_bioheme (~7k) | France (Pays de la Loire) | Petite marque montante, très engagée, bon potentiel de croissance | [bioheme.fr](https://bioheme.fr) |
+| **Chic des Plantes** | Infusions bio haut de gamme | — | France | Certifiée B Corp, positionnement premium | [chicdesplantes.fr](https://www.chicdesplantes.fr) |
+
+---
+
+### 💍 BIJOUX & ACCESSOIRES
+
+| Marque | Produit coffret | Instagram | Origine | Particularité | Site |
+|---|---|---|---|---|---|
+| **Seconde Nature** | Bijoux fait main éco-responsables | @ateliersecondenature | France | Bijoux artisanaux, univers nature — parfait avec Pachamamaï | [ateliersecondenature.fr](https://ateliersecondenature.fr) |
+| **Manora Bijoux** | Bijoux or/argent recyclé, fait à Marseille | @manora_bijoux | France (Marseille) | Or et argent recyclés, pièces uniques | — |
+| **Altermundi** | Bijoux éthiques femme | @altermundi | France/Europe | Plateforme multi-marques éthiques, forte communauté | [altermundi.com](https://www.altermundi.com) |
+
+---
+
+### 📓 PAPETERIE & LIFESTYLE
+
+| Marque | Produit coffret | Instagram | Abonnés Instagram | Origine | Particularité | Site |
+|---|---|---|---|---|---|---|
+| **Season Paper Collection** | Carnets, agendas, papeterie illustrée | @seasonpapercollection | **~58k ✅** | France (Montreuil) | Dans la cible parfaite, illustrations hand-drawn, très féminin, certifié FSC | [seasonpapercollection.com](https://seasonpapercollection.com) |
+| **Kiplé** | Carnets éco-responsables made in Paris | @kiple_shop | À vérifier | France (Paris) | Design + éco-responsable, papier recyclé | [kiple.shop](https://kiple.shop) |
+
+> **Season Paper** est la pépite de cette catégorie : 58k abonnés, univers graphique fort, cible féminine CSP+ évidente, made in France. Priorité haute.
+
+---
+
+### 🛁 LINGE DE BAIN & TEXTILES
+
+| Marque | Produit coffret | Instagram | Origine | Particularité | Site |
+|---|---|---|---|---|---|
+| **Hésiode Home** | Serviette / gant de toilette coton bio GOTS | @hesiode_home | France (Paris, 2023) | Coton bio, aucune teinture chimique, jeune marque ouverte aux collab | [hesiode-home.com](https://hesiode-home.com) |
+| **Blanc Cerise** | Linge de bain coton bio, fabriqué au Portugal | @blancceriseofficial | France/Portugal | Fabrication responsable, marque établie | [blanc-cerise.com](https://www.blanc-cerise.com) |
+
+---
+
+### 🏆 Top 5 recommandés hors cosmétique
+
+| Priorité | Marque | Catégorie | Raison principale |
+|---|---|---|---|
+| 🥇 | **Season Paper Collection** | Papeterie | 58k abonnés, cible identique, made in France, fort potentiel viral |
+| 🥈 | **Mana Bella** | Infusions | 100% dédié aux femmes, plantes françaises, univers bien-être parfait |
+| 🥉 | **Suzanne La Naturelle** | Bougies | Artisanale, naturelle, esthétique soignée, IDF |
+| 4️⃣ | **Hésiode Home** | Linge de bain | Complète idéalement un coffret beauté/soin |
+| 5️⃣ | **Seconde Nature** | Bijoux | Fait main, univers nature, différenciant |
+
+---
+
+*Document mis à jour le 16 juin 2026.*
